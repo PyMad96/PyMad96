@@ -1,6 +1,6 @@
 ###
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=😃+Hi,+I’m+Sarmad+(Sarmad+means+Eternal!);🤗+Happy+to+see+you+here!;)](https://www.linkedin.com/in/sarmad-mehrabian/)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=😃+Hi,+I’m+Sarmad+(Sarmad+means+Eternal!++++++++);🤗+Happy+to+see+you+here!;)](https://www.linkedin.com/in/sarmad-mehrabian/)
 
 ###
 
