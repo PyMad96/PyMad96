@@ -1,3 +1,11 @@
+###
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=😃 Hi, I’m Sarmad;🤗 Happy to see you here!;)](https://www.linkedin.com/in/sarmad-mehrabian/)
+
+###
+
+
+
 - 😃 Hi, I’m Sarmad
 - 🤗 Happy to see you here!
 
